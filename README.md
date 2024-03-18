@@ -1,6 +1,6 @@
 # Hello 👋, I'm Pablo 
 
-I'm passionate about solving complex problems and enhancing efficiency in tech. With over a dozen years in this grand party called technology, I've ranged from a Software Developer to Chief of Staff to the CTO, and I trust that there's no problem a focused work session and mate (or two!) can't solve ☕
+I'm passionate about solving complex problems and enhancing efficiency in tech. With over a dozen years in this grand party called technology, I've been a Software Developer, Tech Lead, Scrum Master, Agile Coach, and recently, the Chief of Staff to the CTO. I trust that there's no problem a focused work session and a mate (or two!) can't solve 🧉
 
 ## 👨‍💻 My Skills 
 
