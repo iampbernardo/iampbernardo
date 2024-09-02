@@ -23,4 +23,4 @@ As a **(freelance) Technical Chief of Staff**, I thrive on helping CTOs and tech
 
 I pride myself on being a versatile problem-solver who can adapt to the ever-changing needs of technical departments in scaling companies.
 
-🚀  If you're looking for a dedicated and experienced Technical Chief of Staff to help your tech organization thrive, [let's connect](mailto:pablo@techchiefofstaff.com) and explore how I can contribute to your team's success.
+🚀  If you're looking for a dedicated and experienced Technical Chief of Staff to help your tech organization thrive, [let's connect](mailto:pablo@pbernardo.com) and explore how I can contribute to your team's success.
